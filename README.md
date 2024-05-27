@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @samywrld
+- 👀 I’m interested in soccer, traveling, and coding (obviously..)
+- 🌱 I’m currently learning javascript.
+- 📫 How to reach me: kingsamii.b@gmail.com
+- 😄 Pronouns: he/him/his
